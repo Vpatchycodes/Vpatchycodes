@@ -3,3 +3,5 @@ I'm driven on ambitiously intertwining technology, design, business, and everyth
 Hone deep interests in product management (PM), virtual & augmented reality systems (VR/AR), edtech entrepreneurship, data science, and software engineering (SWE). 
 Passionate about lifelong learning, whether it be about the latest tools & technologies or new people I meet along my journey. 
 Happy to connect with you at vpachava@wharton.upenn.edu!
+
+Currently seeking opportunities in product management (PM) and interactive technology for Summer and Fall 2022.
