@@ -4,4 +4,4 @@ Hone deep interests in product management (PM), virtual & augmented reality syst
 Passionate about lifelong learning, whether it be about the latest tools & technologies or new people I meet along my journey. 
 Happy to connect with you at vpachava@wharton.upenn.edu!
 
-Currently seeking opportunities in product management (PM) and interactive technology2.
+Currently seeking opportunities in product management (PM)!
